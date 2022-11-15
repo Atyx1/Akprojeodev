@@ -1,1 +1,1 @@
-Akın kaldıroğlu odev cozumleri
+AKIN KALDIROGLU ÖDEV ÇÖZÜMLERİ
